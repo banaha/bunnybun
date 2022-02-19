@@ -1,0 +1,2 @@
+# bunnybun
+Professional Graphics Designer | Logo Designer. About Myself: I have a great passion for designing and always love to create new designs. Thus now I am a highly-skilled, self-motivated graphic designer able to do any kind of design. My work is focused mostly on branding, logo design, web banners. I also make: ✔️ Designing on shirts ✔️ Characters designing ✔️ Business card ✔️ Presentation ✔️ Outdoor advertising ✔️ Icons My skills: ✔️ Adobe Illustrator ✔️ Adobe Photoshop ✔️ Sketch
